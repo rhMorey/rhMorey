@@ -1,2 +1,4 @@
-hi (not aie),
-i don't have to much skills, but i know how to cast double in int
+DISCORD : al pacino#7777
+TWITTER : @Moreyds
+
+All my repo is in private mode. (except one because i made a mistake)
